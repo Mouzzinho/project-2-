@@ -1,3 +1,3 @@
 Projekt 2
-
-opis
+tgegete
+opisrerger
